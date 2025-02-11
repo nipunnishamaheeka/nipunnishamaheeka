@@ -5,7 +5,7 @@
 
 <p align="left"> <a href="https://twitter.com/@graffermr" target="blank"><img src="https://img.shields.io/twitter/follow/@graffermr?logo=twitter&style=for-the-badge" alt="@graffermr" /></a> </p>
 
-- 📫 How to reach me **nishamaheeka123@gmail.com**
+- 📫 How to reach me **ugn.nishamaheekagmail.com**
 
 - ⚡ Fun fact **I am Funny**
 
